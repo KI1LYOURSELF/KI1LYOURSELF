@@ -11,6 +11,16 @@ c + h . w2i . [teletype](https://teletype.in/@shinon/f4TwJa20RIR). 
 ![project-sekai-pjsk](https://github.com/user-attachments/assets/00910bc9-765d-4f14-9d63-4727132ef95c)
 ![heart-hsr](https://github.com/user-attachments/assets/a03b4f1a-b88f-4a54-89ac-c5af561105fb)
 ![kyomoto-look-back](https://github.com/user-attachments/assets/4a21e9fd-2f54-4d35-9776-f65586dfac16)
+![miwako-paradise](https://github.com/user-attachments/assets/45acf727-3def-4366-b2de-6daf6e4341d8)
+![arcane-arcane-jinx](https://github.com/user-attachments/assets/8adec55f-31c4-440b-9e7a-369cadd6dcba)
+![mouthwashing-curly](https://github.com/user-attachments/assets/6d15bea1-8a8f-4003-be80-4af37f1d22e8)
+![saya-song-of-saya](https://github.com/user-attachments/assets/c9e18533-715f-41a5-92eb-0219bf99c595)
+![cute-face-disgusting-face-meme](https://github.com/user-attachments/assets/4376cbc8-b045-4841-a507-c047a7e994ea)
+![nijika-ijichi](https://github.com/user-attachments/assets/e090412f-0203-48d4-8366-b86bdef1f5fe)
+![arataka-reigen-mob-psycho-100](https://github.com/user-attachments/assets/63373545-1917-4868-87d5-c55f3e0a4b89)
+![grace-monroe-grace](https://github.com/user-attachments/assets/7ed555b4-9a3b-4393-86b5-e748a1a21424)
+![netflix-mitchell](https://github.com/user-attachments/assets/3f007b17-6f9f-4e61-bc83-a7be8cc64928)
+![sealyx-makeine](https://github.com/user-attachments/assets/69a9f521-3736-480a-ad93-38554efa6a42)
 
 
 
