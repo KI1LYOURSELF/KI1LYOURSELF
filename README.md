@@ -21,6 +21,24 @@ c + h . w2i . [teletype](https://teletype.in/@shinon/f4TwJa20RIR). 
 ![grace-monroe-grace](https://github.com/user-attachments/assets/7ed555b4-9a3b-4393-86b5-e748a1a21424)
 ![netflix-mitchell](https://github.com/user-attachments/assets/3f007b17-6f9f-4e61-bc83-a7be8cc64928)
 ![sealyx-makeine](https://github.com/user-attachments/assets/69a9f521-3736-480a-ad93-38554efa6a42)
+![qqqqq-qq](https://github.com/user-attachments/assets/18e69666-8741-43a3-b7d6-e3bde9bf2a07)
+![mahiru-shiina-mahiru](https://github.com/user-attachments/assets/1f63e5ce-d117-4ba1-83b1-9d448e56e9b0)
+![joker-coringa](https://github.com/user-attachments/assets/0ed07251-666d-4d3d-a717-cf63ca0f4afe)
+![flcl-fooly-cooly](https://github.com/user-attachments/assets/3f8c4385-31a3-40cc-bdba-acbe1a990827)
+![peni-parker-spiderman](https://github.com/user-attachments/assets/43b3c9da-2f48-4173-a9df-95c107de76d4)
+![joe-locke-heartstopper](https://github.com/user-attachments/assets/45d3a36d-c5e3-43fc-b8bb-c89c56d8fbd5)
+![lalaland-ryangosling](https://github.com/user-attachments/assets/73402842-a244-4e0d-a513-452a93b4bc70)
+![hazbin-hotel-charlie-morningstar](https://github.com/user-attachments/assets/992e3fca-446a-40e9-9791-2c5c6625bbaa)
+![helluva-boss-emberlynn-pinkie](https://github.com/user-attachments/assets/72025055-a810-411f-b3ca-db7326b12c1c)
+![bagel-fight-club](https://github.com/user-attachments/assets/d7732984-2be8-41a2-b1f4-008c045458a8)
+![tsukushi-futaba-tsukushi](https://github.com/user-attachments/assets/79fd04db-f2bc-4273-9e8b-00f63bf938d9)
+![marija-marija-muse-dash](https://github.com/user-attachments/assets/692d3e58-389e-4ba3-bf7d-51102aec0325)
+![ren-14-days-with-you](https://github.com/user-attachments/assets/92459895-aff6-43ad-a7d8-015c41914871)
+![umbrella-skullgirls](https://github.com/user-attachments/assets/f4637fe8-4cc8-49f1-9ac1-1d8881382fb7)
+![noa-fukushima-noa](https://github.com/user-attachments/assets/0e70719e-3531-4ad8-8274-8f8c2b0ee6e6)
+
+
+
 
 
 
