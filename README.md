@@ -1,6 +1,7 @@
  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌  ᠌᠌      ᠌ ᠌ ᠌ ᠌ ᠌  ᠌᠌   ᠌᠌  **shino sheher 15 y.o**
 
-![dca80e5e0484640687bf95afffa8c640](https://github.com/user-attachments/assets/9798298f-7b5b-46ee-8111-6c78da047803)
+![5b4323537d91d358a93ce2058f0cda5b](https://github.com/user-attachments/assets/c4d6ed25-fac1-4875-a5ff-eafc4d82d215)
+
 
  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ приветствуются новые знакомства 
 
