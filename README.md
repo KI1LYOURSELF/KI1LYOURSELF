@@ -5,7 +5,7 @@
  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ приветствуются новые знакомства 
 
 
- ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌  ᠌ [TELETYPE](https://teletype.in/@shinon/f4TwJa20RIR) | [INFO CHANEL](https://t.me/shinoinfoo)| [TG DM](https://t.me/shinobitchh)
+ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌  ᠌ [TELETYPE](https://teletype.in/@shinon/f4TwJa20RIR) | [INFO CHANEL](https://t.me/shinoinfoo) | [TG DM](https://t.me/shinobitchh)
 
 
 
