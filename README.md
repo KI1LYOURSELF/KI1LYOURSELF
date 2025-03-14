@@ -1,12 +1,12 @@
- ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌  ᠌᠌      ᠌ ᠌ ᠌ ᠌ ᠌  ᠌᠌   ᠌᠌  **shino sheher 15 y.o**
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ   **shino ⋮ sheher**
 
-![e23dcb7b01ea64527c0751c081289452](https://github.com/user-attachments/assets/8812c964-a636-4b98-a478-28e15eb3dbf3)
+ㅤ ㅤㅤ ㅤㅤㅤ ㅤ  ㅤ ㅤ ㅤㅤ ㅤㅤㅤ ㅤ  ㅤ    ![image](https://github.com/user-attachments/assets/0d579f8d-0af4-4645-b680-2b0ef87dd160)
 
- ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ приветствуются новые знакомства 
+ㅤ ㅤ ㅤ ────ㅤㅤ ㅤ rui & shinji kinn  ∶  infp & 15 y.o ﾒ sheher ⋮ rareshipper
 
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ   <img src="https://komarev.com/ghpvc/?username=P0RNOGRAPHY&style=flat-square&color=blue" alt=""/>
 
- ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌  ᠌ [TELETYPE](https://teletype.in/@shinon/f4TwJa20RIR) | [INFO CHANEL](https://t.me/shinoinfoo) | [TG DM](https://t.me/shinobitchh)
-
+ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ [TELETYPE](https://teletype.in/@shinon/f4TwJa20RIR) | [INFO CHANEL](https://t.me/shinoinfoo) | [TG DM](https://t.me/shinobitchh)
 
 
 
