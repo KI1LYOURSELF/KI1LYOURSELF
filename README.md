@@ -6,7 +6,7 @@
 
 ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ   <img src="https://komarev.com/ghpvc/?username=P0RNOGRAPHY&style=flat-square&color=blue" alt=""/>
 
- ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ [TELETYPE](https://teletype.in/@shinon/f4TwJa20RIR) | [INFO CHANEL](https://t.me/shinoinfoo) | [TG DM](https://t.me/shinobitchh)
+ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ [TELETYPE](https://teletype.in/@shinos/80-_F-pccKG) | [INFO CHANEL](https://t.me/shinoinfoo) | [TG DM](https://t.me/shinobitchh)
 
 
 
