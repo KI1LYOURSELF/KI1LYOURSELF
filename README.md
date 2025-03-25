@@ -4,7 +4,7 @@
 
 ㅤ ㅤ ㅤ ────ㅤㅤ ㅤ ena & shinji kinn  ∶  infp & 15 y.o ﾒ sheher ⋮ rareshipper
 
-ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ   <img src="https://komarev.com/ghpvc/?username=P0RNOGRAPHY&style=flat-square&color=blue" alt=""/>
+ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ ㅤ   <img src="https://komarev.com/ghpvc/?username=P0RNOGRAPHY&style=flat-square&color=orange" alt=""/>
 
  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌᠌ ᠌ ᠌ ᠌ ᠌ ᠌  ᠌ [TELETYPE](https://teletype.in/@shinos/80-_F-pccKG) | [INFO CHANEL](https://t.me/shinoinfoo) | [TG DM](https://t.me/shinobitchh)
 
