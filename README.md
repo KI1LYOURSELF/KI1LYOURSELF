@@ -1,4 +1,5 @@
-![0905de5157db8bf30584e22ed8bd05fc](https://github.com/user-attachments/assets/4f7e3a7f-1a66-4b3b-805e-cff658a48a44)
+![86b53015-83a4-40cc-a63e-91e841055fa6](https://github.com/user-attachments/assets/af2671c0-8ada-4a45-8cef-955ff9bf00ed)
+
 
 
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ崚登 ﹫ [info](https://t.me/iriskisser)ㅤㅤㅤㅤ[dm](https://t.me/kysryouto) 
