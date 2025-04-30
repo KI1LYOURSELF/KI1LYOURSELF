@@ -2,7 +2,7 @@
 
 
 
-ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ崚登 ﹫ [info](https://t.me/iriskisser)ㅤㅤㅤㅤ[dm](https://t.me/kysryouto) 
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ崚登 ﹫ [info](https://t.me/dr8mDbcha)ㅤㅤㅤㅤ[dm](https://t.me/naosh1n) 
 
 
 
